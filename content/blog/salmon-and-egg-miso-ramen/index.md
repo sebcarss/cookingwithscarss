@@ -5,7 +5,7 @@ img: "./salmon-and-egg-miso-ramen.jpg"
 tags: [ "Ramen", "Year of Ramen" ]
 ---
 
-My daughter, Evalyn, turned 2 this week so I thought it only right to create her a ramen dish with some of her favourite ingredients... but don't worry, I'm not going to create some sort of crazy chocolate and milk flavoured ramen!  Saying that, maybe chocolate ramen should be my recipe for next week considering it's Valentine's Day. Is a chocolate noodle an aphrodisiac? I guess this post sums it up (http://www.eater.com/2016/1/29/10871876/chocolate-ramen-japan) but feel free to add your views in the comments. Anyway, I digress, back to my daughter's favourite (savoury) foods and the main ingredients for this ramen: salmon and egg.
+My daughter, Evalyn, turned 2 this week so I thought it only right to create her a ramen dish with some of her favourite ingredients... but don't worry, I'm not going to create some sort of crazy chocolate and milk flavoured ramen!  Saying that, maybe chocolate ramen should be my recipe for next week considering it's Valentine's Day. Is a chocolate noodle an aphrodisiac? I guess this post sums it up [Chocolate Ramen Is Not For Lovers, But It Is Very Real](http://www.eater.com/2016/1/29/10871876/chocolate-ramen-japan). Anyway, I digress, back to my daughter's favourite (savoury) foods and the main ingredients for this ramen: salmon and egg.
 
 As you can probably imagine, I'm not the kind of guy to pander to the idea that babies need baby food, I'm also not the kind of guy that believes there should be a kids menu at a restaurant that only serves pizza, burger and chips, or chicken nuggets! Why are kids fobbed off with naff food when the adults get to eat the full a la carte menu? Surely this is breeding a culture of bad eaters! So at home Evalyn gets to eat what we eat, sans sel. Sometimes it works, sometimes it doesn't but this is less because she doesn't like the food and more because she likes to test the boundaries of our sanity!  Anyway, this post is dedicated to Evalyn's birthday ramen... I hope she likes it!!
 
@@ -27,7 +27,8 @@ So I added some raw watercress to the meal, which allowed me to add a new colour
 
 ## Evalyn's 2nd Birthday Salmon and Egg, Miso Ramen
 
-### Ingredients (serves 2)
+### Ingredients 
+**Serves 2**
 
 _The broth:_
 
